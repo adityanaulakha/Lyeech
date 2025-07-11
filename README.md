@@ -1,3 +1,3 @@
 # Lyeech
 
-https://example.com/nonexistent-pag
+https://examsaddple.com/no
